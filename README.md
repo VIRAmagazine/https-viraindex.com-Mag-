@@ -1,2 +1,2 @@
-# https-viraindex.com-Mag-
+https://viraindex.com/Mag/
 The pioneer of smart change
