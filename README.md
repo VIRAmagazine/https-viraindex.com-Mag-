@@ -1,2 +1,0 @@
-https://viraindex.com/Mag/
-The pioneer of smart change
